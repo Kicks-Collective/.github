@@ -1,1 +1,1 @@
-We make games, check them out here: https://asset.party/nolankicks
+We make games, check them out here: https://sbox.game/shoes
